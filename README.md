@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Reffinaaryatri
 - 👀 I’m interested in work as Marketing and Costumer Service
-- 🌱 I’m currently lookin for adventure
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently lookin for new adventure
+- 💞️ I’m looking to collaborate on PT.GOJEK
 - 📫 How to reach me 085795212188
 
 <!---
